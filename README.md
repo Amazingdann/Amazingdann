@@ -1,7 +1,7 @@
 ## 👋 Hello Tech Talent & Hiring Leaders!
 Executive Tech Recruiter | Connecting Top IT Talent with Leading Companies Across the Americas
 
-With 10+ years in executive search and talent acquisition, I specialize in high-impact recruitment for the IT & Energy sectors, helping companies secure top-tier tech leaders and professionals across North & Latin America.
+With 10+ years in executive search and talent acquisition, I specialize in recruitment for the IT & Energy sectors, helping companies secure top-tier tech leaders and professionals across North & Latin America.
 
 🚀 Why Partner With Me?
 
