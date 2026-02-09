@@ -27,7 +27,7 @@ With 10+ years in executive search and talent acquisition, I specialize in recru
 📩 Let’s Connect!
 LinkedIn: https://www.linkedin.com/in/daniel-alvarez-5a7771aa/
 
-Email: daniel.alvarez@entropytt.com
+Email: dialvarez@ts4.mx 
 
 
 Open to:
